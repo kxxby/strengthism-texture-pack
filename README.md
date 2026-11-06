@@ -1,0 +1,1 @@
+# strengthism-texture-pack
